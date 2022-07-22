@@ -1,0 +1,10 @@
+xqxw
+xqqqxqxqx
+xmlxxqx
+qx
+qxqx
+qxqxqx
+queuexq
+xqxq
+xq
+queuexq
